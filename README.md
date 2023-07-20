@@ -1,1 +1,0 @@
-# Tea House Resources
